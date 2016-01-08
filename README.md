@@ -1,6 +1,6 @@
 # Weekly-Reports
 
-#Previous weeks not yet uploaded. Will do so when laptop becomes accessible again.
+(Previous weeks not yet uploaded. Will do so when laptop becomes accessible again.)
 
 Week 11
 
